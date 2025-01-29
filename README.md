@@ -1,1 +1,0 @@
-# alonsokovi.github.io
